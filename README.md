@@ -1,4 +1,4 @@
-# Sentiment
-## Founded by Ultik#0001
+# rofl
+## 17 y/o designer & developer
 
-##### nil#1111 / Sentiment Developer
+##### rofl#1356 / a
